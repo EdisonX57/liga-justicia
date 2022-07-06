@@ -11,6 +11,6 @@ Pueden hacer lo que quieran...
 
 # Esto es para el Faraon Love Sahady 
 
-el dios de la versatilidad
+el dios de la versatilidad y dura 2 horas
 
 
